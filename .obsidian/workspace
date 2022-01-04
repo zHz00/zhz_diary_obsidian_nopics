@@ -1,0 +1,92 @@
+{
+  "main": {
+    "id": "9688de4601e0f47d",
+    "type": "split",
+    "children": [
+      {
+        "id": "abb200e560f5ef31",
+        "type": "leaf",
+        "state": {
+          "type": "graph",
+          "state": {}
+        }
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "a4d3bfc8630d7609",
+    "type": "split",
+    "children": [
+      {
+        "id": "636a6fe5f96192b4",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "c31155e5f0362b49",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {}
+            }
+          },
+          {
+            "id": "b88549c4f5ebd842",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              }
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300
+  },
+  "right": {
+    "id": "25d81c6131eb1753",
+    "type": "split",
+    "children": [
+      {
+        "id": "a95c61b97d913b02",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "f203255b16500660",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300,
+    "collapsed": true
+  },
+  "active": "abb200e560f5ef31",
+  "lastOpenFiles": [
+    "Классические Черепашки-Ниндзя Рассказы 5-7.md",
+    "0. Попаданчество в реальности.md",
+    "Pretty Cure 5! Go-Go 36-37.md",
+    "(no title).md"
+  ]
+}
