@@ -7,7 +7,7 @@
         "id": "43d550f290fd5867",
         "type": "leaf",
         "state": {
-          "type": "graph",
+          "type": "empty",
           "state": {}
         }
       }
@@ -36,7 +36,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "Das_J%C3%BCngste_Gericht_%28Memling%29.jpg",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -45,7 +45,8 @@
               }
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
@@ -83,5 +84,8 @@
     "collapsed": true
   },
   "active": "43d550f290fd5867",
-  "lastOpenFiles": []
+  "lastOpenFiles": [
+    "Страшный суд.md",
+    "[2630340 минут спустя].md"
+  ]
 }
