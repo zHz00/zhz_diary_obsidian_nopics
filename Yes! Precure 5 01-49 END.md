@@ -1,9 +1,9 @@
 Yes! Precure 5 01-49 END
-=========================
+========================
 
-   
- 2015-02-08, 21:32   
-   ![](https://i.imgur.com/WvtO8AX.jpg)   
+  
+2015-02-08, 21:32  
+  ![](http://i.imgur.com/WvtO8AX.jpg)   
    
  (кто видел хеншин --  [www.youtube.com/watch?v=ct4-AyX\_H5c](https://www.youtube.com/watch?v=ct4-AyX_H5c)  -- тот будет смеяться)    
    
@@ -27,114 +27,308 @@ Yes! Precure 5 01-49 END
   **В конце -- бонус!**    
    
   Чумной доктор.   
-  [![](https://i.imgur.com/PPKF2RRl.png)](https://i.imgur.com/PPKF2RR.png)    
+  [![](http://i.imgur.com/PPKF2RRl.png)](http://i.imgur.com/PPKF2RR.png)    
  Стул одного из злодеев.   
-  [![](https://i.imgur.com/nGVdaDel.png)](https://i.imgur.com/nGVdaDe.png)    
+  [![](http://i.imgur.com/nGVdaDel.png)](http://i.imgur.com/nGVdaDe.png)    
  В данном сериале много смешных лиц. Но Юми из Девы Марии равных нет, конечно. Смешное лицо #01.   
-  [![](https://i.imgur.com/itTc6ygl.png)](https://i.imgur.com/itTc6yg.png)    
+  [![](http://i.imgur.com/itTc6ygl.png)](http://i.imgur.com/itTc6yg.png)    
  Канализация. Обычно героям махо-сёдзё туда залезать не приходится.   
-  [![](https://i.imgur.com/XpN7z0El.png)](https://i.imgur.com/XpN7z0E.png)    
+  [![](http://i.imgur.com/XpN7z0El.png)](http://i.imgur.com/XpN7z0E.png)    
  Вот эти вот зверьки. Каждый раз, когда я вижу мелких зверьков (не просто мелких, а очень мелких... тут они называются "пинки"), я про себя матерюсь. Я так и говорю -- п???ц. К обычным-то зверькам-спутникам героев я уже привык. Кстати, на фоне --  [газебо](http://lurkmore.to/%D0%93%D0%B0%D0%B7%D0%B5%D0%B1%D0%BE#.D0.9F.D0.B0.D0.BB.D0.B0.D0.B4.D0.B8.D0.BD_.D0.BF.D1.80.D0.BE.D1.82.D0.B8.D0.B2_.D0.93.D0.B0.D0.B7.D0.B5.D0.B1.D0.BE)  .   
-  [![](https://i.imgur.com/6CqlO5pl.png)](https://i.imgur.com/6CqlO5p.png)    
+  [![](http://i.imgur.com/6CqlO5pl.png)](http://i.imgur.com/6CqlO5p.png)    
  ...   
-  [![](https://i.imgur.com/QkwFLJPl.png)](https://i.imgur.com/QkwFLJP.png)    
+  [![](http://i.imgur.com/QkwFLJPl.png)](http://i.imgur.com/QkwFLJP.png)    
  АААА! НАДО ПОБЕДИТЬ ГАЗЕБО. Этот момент меня просто порвал. Интересно, они знают про мем?   
-  [![](https://i.imgur.com/yEohapll.png)](https://i.imgur.com/yEohapl.png)    
+  [![](http://i.imgur.com/yEohapll.png)](http://i.imgur.com/yEohapl.png)    
  Зайчик-побегайчик.   
-  [![](https://i.imgur.com/yCClGcIl.png)](https://i.imgur.com/yCClGcI.png)    
+  [![](http://i.imgur.com/yCClGcIl.png)](http://i.imgur.com/yCClGcI.png)    
  Человеческая форма одного из зверьков-спутников пытается залезть в постель к главной девочке (14 лет). Входит мама.   
-  [![](https://i.imgur.com/tUUSQlSl.png)](https://i.imgur.com/tUUSQlS.png)    
+  [![](http://i.imgur.com/tUUSQlSl.png)](http://i.imgur.com/tUUSQlS.png)    
  Склады. Почти как в Мор.Утопии.   
-  [![](https://i.imgur.com/Pn4xoJHl.png)](https://i.imgur.com/Pn4xoJH.png)    
+  [![](http://i.imgur.com/Pn4xoJHl.png)](http://i.imgur.com/Pn4xoJH.png)    
  Без комментариев.   
-  [![](https://i.imgur.com/OvB4lBRl.png)](https://i.imgur.com/OvB4lBR.png)    
+  [![](http://i.imgur.com/OvB4lBRl.png)](http://i.imgur.com/OvB4lBR.png)    
  Тема плюшевого мишки-монстра поднималась неоднократно. Это весьма любопытно -- почему люди часто делают из игрушек -- монстров?   
-  [![](https://i.imgur.com/nqTYgHtl.png)](https://i.imgur.com/nqTYgHt.png)    
+  [![](http://i.imgur.com/nqTYgHtl.png)](http://i.imgur.com/nqTYgHt.png)    
  Левитация пива.   
-  [![](https://i.imgur.com/RMOPKYfl.png)](https://i.imgur.com/RMOPKYf.png)    
+  [![](http://i.imgur.com/RMOPKYfl.png)](http://i.imgur.com/RMOPKYf.png)    
  Смешное лицо #02.   
-  [![](https://i.imgur.com/5AyDa6Pl.png)](https://i.imgur.com/5AyDa6P.png)    
+  [![](http://i.imgur.com/5AyDa6Pl.png)](http://i.imgur.com/5AyDa6P.png)    
  Моя Карэн не может быть такой милой. Смешное лицо #03.   
-  [![](https://i.imgur.com/3pq5dzSl.png)](https://i.imgur.com/3pq5dzS.png)    
- Смешное лицо #04. Это прямо EDDSWORLD#115:  [eddsworld.deviantart.com/art/EWCOMIC115-Interne...](https://eddsworld.deviantart.com/art/EWCOMIC115-Internet-166924948)    
-  [![](https://i.imgur.com/tGKkANdl.png)](https://i.imgur.com/tGKkANd.png)    
+  [![](http://i.imgur.com/3pq5dzSl.png)](http://i.imgur.com/3pq5dzS.png)    
+ Смешное лицо #04. Это прямо EDDSWORLD#115:  [eddsworld.deviantart.com/art/EWCOMIC115-Interne...](http://eddsworld.deviantart.com/art/EWCOMIC115-Internet-166924948)    
+  [![](http://i.imgur.com/tGKkANdl.png)](http://i.imgur.com/tGKkANd.png)    
  Нах?й -- это прямо и немного направо.   
-  [![](https://i.imgur.com/cU8b0mKl.png)](https://i.imgur.com/cU8b0mK.png)    
+  [![](http://i.imgur.com/cU8b0mKl.png)](http://i.imgur.com/cU8b0mK.png)    
  "-- Где мы? -- На воздушном шаре." (С) анекдот. Тут хорошо видна архитектура города. Но он японский -- почему она такая?   
-  [![](https://i.imgur.com/Dz3kzeVl.png)](https://i.imgur.com/Dz3kzeV.png)    
+  [![](http://i.imgur.com/Dz3kzeVl.png)](http://i.imgur.com/Dz3kzeV.png)    
  Смешное лицо #05.   
-  [![](https://i.imgur.com/rce5WOpl.png)](https://i.imgur.com/rce5WOp.png)    
+  [![](http://i.imgur.com/rce5WOpl.png)](http://i.imgur.com/rce5WOp.png)    
  Модная шляпа.   
-  [![](https://i.imgur.com/s1OlWQdl.png)](https://i.imgur.com/s1OlWQd.png)    
+  [![](http://i.imgur.com/s1OlWQdl.png)](http://i.imgur.com/s1OlWQd.png)    
  Wooden holem из NetHack.   
-  [![](https://i.imgur.com/rB3RfNKl.png)](https://i.imgur.com/rB3RfNK.png)    
+  [![](http://i.imgur.com/rB3RfNKl.png)](http://i.imgur.com/rB3RfNK.png)    
  Смешные лица #06.   
-  [![](https://i.imgur.com/uari3uRl.png)](https://i.imgur.com/uari3uR.png)    
+  [![](http://i.imgur.com/uari3uRl.png)](http://i.imgur.com/uari3uR.png)    
  Смешные лица #07.   
-  [![](https://i.imgur.com/NsJwoEVl.png)](https://i.imgur.com/NsJwoEV.png)    
+  [![](http://i.imgur.com/NsJwoEVl.png)](http://i.imgur.com/NsJwoEV.png)    
  Смешные лица #08.   
-  [![](https://i.imgur.com/TswXPDjl.png)](https://i.imgur.com/TswXPDj.png)    
+  [![](http://i.imgur.com/TswXPDjl.png)](http://i.imgur.com/TswXPDj.png)    
  Комната Урары. Заметьте -- у неё на стене -- ЕЁ портрет. Если это не родители повесили -- это очевидный элемент нарциссизма.   
-  [![](https://i.imgur.com/ns9WnJpl.png)](https://i.imgur.com/ns9WnJp.png)    
+  [![](http://i.imgur.com/ns9WnJpl.png)](http://i.imgur.com/ns9WnJp.png)    
  Правильно. Если зверёк-компаньон мешает -- его надо утопить...   
-  [![](https://i.imgur.com/IEd03RLl.png)](https://i.imgur.com/IEd03RL.png)    
+  [![](http://i.imgur.com/IEd03RLl.png)](http://i.imgur.com/IEd03RL.png)    
  ...Но для надёжности лучше, чтобы в воде были рыбки.   
-  [![](https://i.imgur.com/QQ1Xx28l.png)](https://i.imgur.com/QQ1Xx28.png)    
+  [![](http://i.imgur.com/QQ1Xx28l.png)](http://i.imgur.com/QQ1Xx28.png)    
  Это треш. Комати получила 10к копий самой себя в чиби-виде...   
-  [![](https://i.imgur.com/F3X1u5Jl.png)](https://i.imgur.com/F3X1u5J.png)    
+  [![](http://i.imgur.com/F3X1u5Jl.png)](http://i.imgur.com/F3X1u5J.png)    
  ...И эти копии не слишком дружелюбные, надо сказать.   
-  [![](https://i.imgur.com/l5lxm9sl.png)](https://i.imgur.com/l5lxm9s.png)    
+  [![](http://i.imgur.com/l5lxm9sl.png)](http://i.imgur.com/l5lxm9s.png)    
    
   [(спойлер)](https://zHz00.diary.ru/p202574553.htm?index=1#linkmore202574553m1)    Прекуре в масках Отчаяния.   
-  [![](https://i.imgur.com/VBFYSDJl.png)](https://i.imgur.com/VBFYSDJ.png)      
+  [![](http://i.imgur.com/VBFYSDJl.png)](http://i.imgur.com/VBFYSDJ.png)      
    
  "У меня тараканов дофига -- Ну купи им мелок. Я вон купил, сидят в углу, рисуют".   
-  [![](https://i.imgur.com/38zuCmul.png)](https://i.imgur.com/38zuCmu.png)    
+  [![](http://i.imgur.com/38zuCmul.png)](http://i.imgur.com/38zuCmu.png)    
  Езда на велосипеде по стене дома.   
-  [![](https://i.imgur.com/zZ0mCTul.png)](https://i.imgur.com/zZ0mCTu.png)    
+  [![](http://i.imgur.com/zZ0mCTul.png)](http://i.imgur.com/zZ0mCTu.png)    
  Когда один из зверьков потолстел, ему сказали, что надо заниматься физ. упражнениями и заменили содержимое холодильника на... колесо для белок и хомяков. Надо сказать, что бегать в колесе для белок в закрытом тёмном включённом холодильнике -- это сюр. Как он это делал -- не показали.   
-  [![](https://i.imgur.com/hL0m71Fl.png)](https://i.imgur.com/hL0m71F.png)    
+  [![](http://i.imgur.com/hL0m71Fl.png)](http://i.imgur.com/hL0m71F.png)    
  Мариса!   
-  [![](https://i.imgur.com/wQ3oqHYl.png)](https://i.imgur.com/wQ3oqHY.png)    
+  [![](http://i.imgur.com/wQ3oqHYl.png)](http://i.imgur.com/wQ3oqHY.png)    
  Обычно в аниме только один мальчик падает на одну девочку (или наоборот)! А "домино" не видел никогда.   
-  [![](https://i.imgur.com/T0j1zzQl.png)](https://i.imgur.com/T0j1zzQ.png)    
+  [![](http://i.imgur.com/T0j1zzQl.png)](http://i.imgur.com/T0j1zzQ.png)    
  Смешные лица #08.   
-  [![](https://i.imgur.com/tlPp7W9l.png)](https://i.imgur.com/tlPp7W9.png)    
+  [![](http://i.imgur.com/tlPp7W9l.png)](http://i.imgur.com/tlPp7W9.png)    
  Фиолетовые руки на эмалевой стене.. (С) В. Брюсов.   
-  [![](https://i.imgur.com/MXovl36l.png)](https://i.imgur.com/MXovl36.png)    
+  [![](http://i.imgur.com/MXovl36l.png)](http://i.imgur.com/MXovl36.png)    
  Обратите внимание на фигуру на заднем плане. Я попробовал так выгнуть пальцы. Не вышло.   
-  [![](https://i.imgur.com/HESdqYFl.png)](https://i.imgur.com/HESdqYF.png)    
+  [![](http://i.imgur.com/HESdqYFl.png)](http://i.imgur.com/HESdqYF.png)    
  Обычно в махо-сёдзё девочки не свисают, побитые, с деревьев. Тут, правда, она просто отдыхает после битвы.   
-  [![](https://i.imgur.com/roOEm3Al.png)](https://i.imgur.com/roOEm3A.png)    
+  [![](http://i.imgur.com/roOEm3Al.png)](http://i.imgur.com/roOEm3A.png)    
  Главный злодей оказался... снеговиком!   
-  [![](https://i.imgur.com/yJoPfcyl.png)](https://i.imgur.com/yJoPfcy.png)    
+  [![](http://i.imgur.com/yJoPfcyl.png)](http://i.imgur.com/yJoPfcy.png)    
    
   [(спойлер)](https://zHz00.diary.ru/p202574553.htm?index=2#linkmore202574553m2)    Этого зверька тоже не обошла маска Отчаяния. Но... блин, на кого же он в ней похож? Что-то очень знакомое. Вспомнить не могу.   
-  [![](https://i.imgur.com/THbZ5Mel.png)](https://i.imgur.com/THbZ5Me.png)      
+  [![](http://i.imgur.com/THbZ5Mel.png)](http://i.imgur.com/THbZ5Me.png)      
    
  Можно увидеть, что девочки построились "свиньёй".   
-  [![](https://i.imgur.com/gMGIhNel.png)](https://i.imgur.com/gMGIhNe.png)    
+  [![](http://i.imgur.com/gMGIhNel.png)](http://i.imgur.com/gMGIhNe.png)    
  Как красиво глаза нарисовали!   
-  [![](https://i.imgur.com/e7Y9dr6l.png)](https://i.imgur.com/e7Y9dr6.png)    
+  [![](http://i.imgur.com/e7Y9dr6l.png)](http://i.imgur.com/e7Y9dr6.png)    
  Пушистое зверьё похищают инопланетяне.   
-  [![](https://i.imgur.com/87hQr6Sl.png)](https://i.imgur.com/87hQr6S.png)    
+  [![](http://i.imgur.com/87hQr6Sl.png)](http://i.imgur.com/87hQr6S.png)    
    
   **===Бонус===**    
    
  Смешные лица #10 (anigif).   
- ![](https://i.imgur.com/mW5PLXv.gif)   
+ ![](http://i.imgur.com/mW5PLXv.gif)   
  Смешные лица #11 (anigif).   
- ![](https://i.imgur.com/LjKUbZS.gif)   
+ ![](http://i.imgur.com/LjKUbZS.gif)   
  Комикс!   
- ![](https://i.imgur.com/orp11rq.png)   
+ ![](http://i.imgur.com/orp11rq.png)   
    
- Альбом целиком:  [imgur.com/a/UK0ei](https://imgur.com/a/UK0ei)  .   
+ Альбом целиком:  [imgur.com/a/UK0ei](http://imgur.com/a/UK0ei)  .   
     
    
      
-    
- <https://diary.ru/~zHz00/p202574553_yes-precure-5-01-49-end.htm>   
+  
+<https://diary.ru/~zHz00/p202574553_yes-precure-5-01-49-end.htm>  
+  
+Теги:  
+[[Аниме]]  
+ID: p202574553  
+
+
+Комментарии: 13
+---------------
+
+  
+
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (1/13) | 2015-02-09, 01:13 | Гость | c683434348 |
+
+  
+ Что дальше?   
+ ^c683434348
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (2/13) | 2015-02-09, 01:37 | zHz00 | c683435492 |
+
+  
+  **Гость**  , вопрос слишком общий. Объясните, о чём вы.   
+ ^c683435492
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (3/13) | 2015-02-09, 01:51 | Гость | c683435983 |
+
+  
+  вопрос слишком общий    
    
- Теги:   
- [[Аниме]]   
- ID: p202574553
+ А то вы не поняли)   
+   
+ Что смотреть дальше будете?   
+ ^c683435983
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (4/13) | 2015-02-09, 01:53 | zHz00 | c683436088 |
+
+  
+  **Гость**  , ВСЁ. Обычно я смотрю по одному за раз, но для прекуре у меня открыт отдельный фронт.   
+ ^c683436088
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (5/13) | 2015-02-09, 02:40 | Гость | c683437425 |
+
+  
+  Гость, ВСЁ    
+   
+ Жизни не хватит.   
+ ^c683437425
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (6/13) | 2015-02-09, 03:01 | zHz00 | c683437829 |
+
+  
+  **Гость**  ,   
+ -- мы вас приговариваем... к трёхстам годам заключения...   
+ -- ну что вы, я же не смогу столько отсидеть... я же умру...   
+ -- ну, а мы и не настаиваем -- сколько сможете, столько и отсидите.   
+ ^c683437829
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (7/13) | 2015-02-09, 04:30 | Гость | c683438807 |
+
+  
+  сколько сможете, столько и отсидите    
+   
+ Но тогда уж точно вам следовало отвечать не "ВСЕ", а "сколько смогу".   
+ ^c683438807
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (8/13) | 2015-02-09, 07:20 | Гость | c683440285 |
+
+  
+ Годзилла жжот.   
+ ^c683440285
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (9/13) | 2015-02-09, 07:49 | zHz00 | c683440652 |
+
+  
+ >>Но тогда уж точно вам следовало отвечать не "ВСЕ", а "сколько смогу".   
+ А я оптимист.   
+   
+ >>Годзилла жжот.   
+ Какой Годзилла? Где?   
+ ^c683440652
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (10/13) | 2015-02-09, 17:18 | Сестрёнка-моделистка | c683469007 |
+
+  
+  Вот эти вот зверьки.    
+   
+ Чем-то они мне напомнили этих существ.   
+  [две картинки](https://zHz00.diary.ru/p202574553.htm?index=1#linkmore202574553m1)    ![](http://static.diary.ru/userdir/3/2/9/3/3293960/82520412.jpg) ![](http://static.diary.ru/userdir/3/2/9/3/3293960/82520410.jpg)     
+   
+  Тема плюшевого мишки-монстра поднималась неоднократно. Это весьма любопытно -- почему люди часто делают из игрушек -- монстров?    
+   
+ \*грустный смех\*   
+   
+  Главный злодей оказался... снеговиком!    
+   
+ Да что там! Есть книга, в которой детей убивает маньяк по прозвищу "Снеговик".   
+ ^c683469007
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (11/13) | 2015-02-09, 19:09 | Crawling Chaos | c683476367 |
+
+  
+  ВСЁ    
+   
+ кроме ДТБ!   
+ ^c683476367
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (12/13) | 2015-02-09, 22:55 | zHz00 | c683494653 |
+
+  
+  [Сестрёнка-моделистка](http://PlasticNee-san.diary.ru)  , а эти ваши существа откуда?   
+  [Crawling Chaos](http://degozaru.diary.ru "de gozaru")  , нет уж, ВКЛЮЧАЯ -- ДТБ.   
+ ^c683494653
+
+---
+
+
+
+|         #         |              Дата              |                     Автор                     |           ID           |
+| --- | --- | --- | --- |
+| (13/13) | 2015-02-09, 23:20 | Сестрёнка-моделистка | c683496720 |
+
+  
+  а эти ваши существа откуда?    
+   
+  [отсюда](https://zHz00.diary.ru/p202574553.htm?index=1#linkmore202574553m1)     [www.world-art.ru/animation/animation.php?id=247...](http://www.world-art.ru/animation/animation.php?id=2479)      
+ ^c683496720
